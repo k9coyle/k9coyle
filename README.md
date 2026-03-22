@@ -1,28 +1,10 @@
 <div align="center">
+  
+![](https://camo.githubusercontent.com/13a645d74f794eaca6415734c1f2aa2362d46690ce0619bb2563d688d14f25dc/68747470733a2f2f6b6f6d617265762e636f6d2f67687076632f3f757365726e616d653d6b39636f796c6526636f6c6f723d303232613562266c6162656c3d254532253941254131267374796c653d706c6173746963)
 
-![⚡](https://komarev.com/ghpvc/?username=k9coyle&color=022a5b&label=⚡&style=plastic)
-<br>
-<img src="https://files.catbox.moe/xfdcj4.png" width=500 align="left" alt="Coyle">
+###### ┈　[My Franco](https://github.com/BabieFranco)　𓈒　![](https://files.catbox.moe/kp9rwb.webp)　ꞌꞋ ࣪
+![coyle](https://files.catbox.moe/4ann9o.png)
 
+###### [insta](https://www.instagram.com/snuffbunny_?igsh=MXY0b3o1ZWhkZXV5OA%3D%3D&utm_source=qr)　𓈒　[tiktok](https://www.tiktok.com/@pyrosflame?_r=1&_t=ZP-93Zqk2FBXqh)　𓈒　[prns (wip)](https://pronouns.cc/@pyrosflame)
 
-<br>
-<br>
-  <table>
-    <tr>
-      <td>
-        <br>
-$\color{#022a5b}{\textsf{Marston ノ Mars ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎He ノ They}}$<br>
-$\color{#022a5b}{\textsf{Happily Taken!‎ ‎‎ ‎ILMBFFRANCO!!!}}$<br>
-$\color{#022a5b}{\textsf{INTP‎‎ ‎ ‎ ‎‎ ‎ ‎Multi-Fandom ‎‎ ‎ ‎ ‎‎ ‎ Artist}}$<br>
-$\color{#022a5b}{\textsf{MLM    ‎ ‎ ‎‎ ++.‎  ‎ ‎ ‎‎   ‎ ‎ ‎‎  ‎ ‎ ‎‎   transgender}}$<br>
-$\color{#022a5b}{\textsf{15yr‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎‎ ‎  ‎ ‎‎ ‎ narraflect/fictokin }}$<br>
-        <br>
-          <br>
-      </td>
-    </tr>
-  </table>
-
-
-<img src="https://files.catbox.moe/363dhg.png" width="500" alt="div">
-
-<a href="https://www.instagram.com/snuffbunny_?igsh=MXY0b3o1ZWhkZXV5OA%3D%3D&utm_source=qr"><img src="https://files.catbox.moe/nu5p3e.png" width="80" alt="icon"></a> <a href="https://www.tiktok.com/@pyrosflame?_r=1&_t=ZP-93Zqk2FBXqh"><img src="https://files.catbox.moe/p7u4kg.png" width="80" alt=" icon"></a> <a href=""><img src="https://files.catbox.moe/lzj754.jpg" width="80" alt=" icon"></a>
+###### ❝ Oh, you gon' make me work for it? ❞
