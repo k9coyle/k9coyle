@@ -6,4 +6,4 @@
 
 ###### [insta](https://www.instagram.com/snuffbunny_?igsh=MXY0b3o1ZWhkZXV5OA%3D%3D&utm_source=qr)　𓈒　[tiktok](https://www.tiktok.com/@pyrosflame?_r=1&_t=ZP-93Zqk2FBXqh)　𓈒　[prns (wip)](https://pronouns.cc/@pyrosflame)
 
-###### ❝ Oh, you gon' make me work for it? ❞
+
